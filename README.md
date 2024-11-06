@@ -1,0 +1,1 @@
+# Dor e sofrimento
